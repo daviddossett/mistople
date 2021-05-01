@@ -1,1 +1,1 @@
-### 👋 Hi, I'm David 
+### Hi, I'm David 
